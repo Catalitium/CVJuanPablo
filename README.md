@@ -1,2 +1,12 @@
-# CV Juan Pablo Garcia
-Curriculum Vitae Juan Pablo Garcia
+CV J.P Garcia
+
+Curriculum Vitae Juan P. Garcia
+
+Nueva Version 🚀
+
+Pregunta sobre Projectos Especiales 📋
+
+Historíco 🖇️
+
+Autores ✒️
+  Catalitium  -  para Juan Garcia 
